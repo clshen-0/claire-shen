@@ -1,4 +1,4 @@
-> "Conformity is the jailer of freedom and the enemy of growth"
-> – John F. Kennedy
+> "History doesn't repeat itself, but it does often rhyme"
+> – Mark Twain (maybe)
 
 Wowow thanks for finding my website :D
