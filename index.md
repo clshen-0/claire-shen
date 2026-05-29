@@ -10,6 +10,7 @@
 * Running
 * Music
 * Musicals ✨
+My top musical rec: [Hadestown Performance of "Wait for Me"](https://www.youtube.com/watch?v=MWtjGIV1sMQ&list=RDMWtjGIV1sMQ&start_radio=1)
 
 ## Favorite animal
 Observe this turtle tearing it up on a skateboard
