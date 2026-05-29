@@ -1,5 +1,3 @@
-theme: jekyll-theme-merlot
-
 # Claire Shen
 
 > "History doesn't repeat itself, but it does often rhyme"
